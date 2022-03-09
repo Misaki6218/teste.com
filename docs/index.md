@@ -1,11 +1,10 @@
-# Bem vinde amgs
+# Bem vindo
 
 Oizinho
 ## sla
 
 * `ksdjfsdhfjshjsd` - hehehe.
-* ohhhhhhh
-* shitttt
+
 * 
 
 ##  layout
